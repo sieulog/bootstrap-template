@@ -1,0 +1,1 @@
+EasyShop - http://demo.magentech.com/themes/sm_supershop/
